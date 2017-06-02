@@ -1,0 +1,1 @@
+This past week has been weird, but i liked it. It was a bit of a rollercoaster of emotions, not because i didn't think we'd get done, but because you get to see this thing form infront of you. It as really quite powerful to watch, and it gave me a lotm more faith in my abilities as a developer (especially CSS).
